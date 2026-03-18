@@ -4,7 +4,7 @@
 
 Here are some ideas to get you started:
 
-- 🔭 I am currently not working with programming
+- 🎓 I am currently studying Information Systems at Unisul
 - 🏆 Graduated from the Entra21 program
 - 📫 How to reach me: Instagram WhatsApp Linkedin
 
